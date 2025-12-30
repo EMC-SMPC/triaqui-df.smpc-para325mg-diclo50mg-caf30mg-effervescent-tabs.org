@@ -1,0 +1,1 @@
+# triaqui-df.smpc-para325mg-diclo50mg-caf30mg-effervescent-tabs.org
